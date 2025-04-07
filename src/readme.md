@@ -1,0 +1,3 @@
+La historia del Club Atlético Boca Juniors 
+transcurre desde 1905  la actualidad siendo el fútbol desde los comienzos la esencia del club y, aunque posteriormente el crecimiento de la institución promovió el desarrollo de otras actividades como las bochas,
+ básquet, entre otros, aquel permaneció como la disciplina deportiva sobre la cual se sustenta la entidad y la que le valió su reconocimiento a nivel nacional e internacional.
